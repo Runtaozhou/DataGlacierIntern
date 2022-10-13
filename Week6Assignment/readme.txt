@@ -1,4 +1,4 @@
-this is the week 6 assignemnt
+this is the week 6 assignment
 
 
 work cited: 
